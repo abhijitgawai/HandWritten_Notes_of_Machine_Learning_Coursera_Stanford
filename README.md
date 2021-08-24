@@ -10,3 +10,9 @@ Complete detailed notes of 208 pages
 ![Capture](https://user-images.githubusercontent.com/45332512/130601774-0148b99d-8c4c-43ca-864c-003762204876.JPG)
 
 [Verify my Certificate](https://www.coursera.org/account/accomplishments/certificate/CG8PE9YLDE8C?utm_medium=certificate&utm_source=link&utm_campaign=copybutton_certificate)
+
+
+
+
+
+stay tuned to know how to get certification for free
